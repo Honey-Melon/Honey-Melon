@@ -1,7 +1,9 @@
-Hey hey, Melon here, but I can also be your Honey <3
+### Hey there, I'm Melon! 🍈
+but you can also call me Honey 💛
 
-Currently working on:
-🥬Vegan Zombie🥗
+#### Currently Working On:
+- **🥬 Vegan Zombie 🥗**
 
-Always up for a chat 🖤
-"I don't want to be part of a world where being kind is a weakness"
+#### Let's Connect!
+I'm always up for a chat and love meeting new people 🖤
+"I don't want to be part of a world where being kind is a weakness."
