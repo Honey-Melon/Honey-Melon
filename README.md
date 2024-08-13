@@ -4,3 +4,4 @@ Currently working on:
 🥬Vegan Zombie🥗
 
 Always up for a chat 🖤
+"I don't want to be part of a world where being kind is a weakness"
